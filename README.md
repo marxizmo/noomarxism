@@ -1,1 +1,1 @@
-# noomarxizm
+# [Ноомарксизм](noomarxizm.md)
